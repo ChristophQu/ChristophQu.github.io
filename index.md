@@ -7,3 +7,5 @@ Jemand musste Josef K. verleumdet haben, denn ohne dass er etwas Böses getan h�
 * sagt nix
 * und ist kein Inhalt
 
+> I’ve always been more interested
+> in the future than in the past.
