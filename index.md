@@ -9,3 +9,5 @@ Jemand musste Josef K. verleumdet haben, denn ohne dass er etwas Böses getan h�
 
 > I’ve always been more interested
 > in the future than in the past.
+
+<img src="https://naehmaschinen-discounter.de/benutzer/image/produkte/G333.jpg"/>
